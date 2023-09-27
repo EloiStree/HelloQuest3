@@ -10,8 +10,8 @@ Contact & Support: [Discord: Eloi Support](https://eloistree.github.io/r/discord
 Hello :) 
 
 Facebook Connect 2023, September 27:  
-[![image](https://github.com/EloiStree/HelloQuest3/assets/20149493/9c9ef27f-7bc9-4e49-a6f8-b079fd17680b)](https://youtu.be/FhQJRA62DX8)  
-https://youtu.be/FhQJRA62DX8  
+[![image](https://github.com/EloiStree/HelloQuest3/assets/20149493/9c9ef27f-7bc9-4e49-a6f8-b079fd17680b)](https://youtu.be/KoqQCl6l73k)  
+https://youtu.be/KoqQCl6l73k
 
 Virtual Oasis Day one video:  
 [![image](https://github.com/EloiStree/HelloQuest3/assets/20149493/924519af-67be-4a1f-91b4-7973a80ab25e)](https://youtu.be/VpUIndlsV78)  
