@@ -43,9 +43,10 @@ Apprendre en groupe à mesurer et capturer le volume de plusieurs pièces, à ce
 <img width="1358" height="512" alt="image" src="https://github.com/user-attachments/assets/1d4b267d-8254-4872-849d-07765a411c62" />](https://youtu.be/M3RV3ZA1xFk?t=1160)  
 
 * **Avec le code d’Eloi**
-  [Vidéo démonstration](https://youtu.be/0k1kqoNi4UM?t=16)
-
-  [<img width="1340" height="552" alt="image" src="https://github.com/user-attachments/assets/82b90e60-6ef9-45bb-a136-6bcf275f7da8" />  ](https://youtu.be/0k1kqoNi4UM?t=16)
+  
+[Vidéo démonstration](https://youtu.be/0k1kqoNi4UM?t=16)
+[<img width="1340" height="552" alt="image" src="https://github.com/user-attachments/assets/82b90e60-6ef9-45bb-a136-6bcf275f7da8" />](https://youtu.be/0k1kqoNi4UM?t=16)
+[<img width="1353" height="703" alt="image" src="https://github.com/user-attachments/assets/fe4c171a-5c71-4707-b548-0769908162ff" />](https://youtu.be/0k1kqoNi4UM?t=253)
 
 ---
 
