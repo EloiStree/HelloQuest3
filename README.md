@@ -21,3 +21,14 @@ https://youtu.be/WUbtyCljnjE
 Virtual Oasis Day one video:  
 [![image](https://github.com/EloiStree/HelloQuest3/assets/20149493/924519af-67be-4a1f-91b4-7973a80ab25e)](https://youtu.be/VpUIndlsV78)  
 https://youtu.be/VpUIndlsV78  
+
+
+
+-----------------------------
+
+
+If you are wondering who I am and what I do;
+- Short showcase of my pre covid project: https://youtu.be/SElpOHKeGSg?t=2
+- Video of my past games: https://www.youtube.com/c/EloiStrée/videos
+- Random video on what I am experimenting on: https://www.youtube.com/@eloistreeraw/videos
+- French teaching video on diverse topic: https://www.youtube.com/@EloiTeaching
